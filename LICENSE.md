@@ -1,4 +1,4 @@
-
+Get the ultimate Notion for macOS addon with Notion for macOS elite Addon: calendar integration & note encryption. Featuring calendar integration and note encryption, it's the
 
 
 
